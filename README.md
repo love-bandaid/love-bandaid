@@ -1,3 +1,5 @@
+Hi guys ! you may have noticed i'm not updating the project for a bit while- i decided to take a little break! while that i'll be working on new art for the project <3 xoxo 
+
 #### <p align="center"> ![](https://komarev.com/ghpvc/?username=darlingness&label=🥼&color=ff9cd2&style=plastic)
 
 #### <p align="center"> Hello! This is love-bandaid, a personal project with the objective of making people happier, and their days even better!
