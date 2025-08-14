@@ -1,4 +1,4 @@
-Pfp, main art and sprites remade! 
+Taking a slight break from this project.. My apologies! We'll be back on track soon!
 
 #### <p align="center"> ![](https://komarev.com/ghpvc/?username=darlingness&label=🥼&color=ff9cd2&style=plastic)
 
